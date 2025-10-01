@@ -1,0 +1,1 @@
+# Effectuvnist-arhitecturnuh-rishen
